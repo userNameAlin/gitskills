@@ -1,1 +1,1 @@
-# gitskills  i will change you githug;
+# gitskills  i will change you github;
